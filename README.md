@@ -1,4 +1,4 @@
-# Springboard-Course-Capstone-Project-2
+                            Exective Summary
 
 With more than 145 million active daily users, Twitter have become a part of the marketing strategy for business owners.  It’s the fifth most popular social media network, and it’s a gold mine of customer insights and opportunities to build the brand, drive sales and win fans.
 
